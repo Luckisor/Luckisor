@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Luckisor
 - 👀 I’m interested in python
 - 🌱 I’m currently trying to learn html  
-- 📫 How to reach me Lucki#5762
+- 📫 How to reach me [lucki](https://discord.gg/Qt7X35H6)
